@@ -5,3 +5,4 @@ https://backwavesyun.com/user/node
 https://www.kaikaiyun.icu/user/node
 https://niuniuhenniu.org/user/node
 https://spcloud.club/user/node
+https://stardream.xyz/user/node
