@@ -6,3 +6,7 @@ https://www.kaikaiyun.icu/user/node
 https://niuniuhenniu.org/user/node
 https://spcloud.club/user/node
 https://stardream.xyz/user/node
+https://cloud.ok7.icu/user/node
+https://fast-fish.me/user/node
+https://ssthy.com/user/node
+https://www.javayun.cyou/user/node
