@@ -18,3 +18,6 @@ https://www.cxkv2.xyz/user/node
 https://www.cxkv2.xyz/user/node
 https://biteb.me/user/node
 https://www.jiuyecaody.xyz/user/node
+https://muniucloud.work/user/node
+https://tanzcloud.com/user/node
+https://www.freedog.me/user/node
